@@ -1,1 +1,1 @@
-# learn-everyday
+# Everyday's Learning
